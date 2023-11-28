@@ -3,5 +3,5 @@ one piece
 shordyyyy
 yeat hard af
 trav
-sore throat
-nj
+sore thro
+whyne to d centa
